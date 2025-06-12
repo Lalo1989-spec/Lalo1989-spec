@@ -1,7 +1,7 @@
-https://github.com/user-attachments/assets/6a4d7cfa-4245-43fb-a317-71091c22926d
 
 
-https://github.com/user-attachments/assets/6a4d7cfa-4245-43fb-a317-71091c22926d
+
+https://github.com/user-attachments/6a4d7cfa-4245-43fb-a317-71091c22926d
 
 - 👋 Hi, I’m @Lalo1989-spec
 - 👀 I’m interested in ...
